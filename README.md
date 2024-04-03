@@ -1,3 +1,3 @@
 # ThisOmega
 sim
-![](https://i.pinimg.com/564x/9f/f5/a5/9ff5a5c8a12f8ece7981c285082e161f.jpg)
+![](https://i.pinimg.com/564x/53/72/48/537248236ae31012d8d57f07f1c7edd4.jpg.jpg)
